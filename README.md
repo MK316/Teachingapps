@@ -1,7 +1,7 @@
 # 🐰 Make 2023 your year! Wish you a good luck.
 🙏 Success Requires Passion! (Dec.30, 2022)
 - **This page is for my beloved students: e.g., Teachers' Exam Prep**
-- If you have a question or request regarding the coding page, ask [here](https://padlet.com/miranege/F2022). I'll leave my answer there, if necessary :-)
+- 📮 Q & As: If you have a question or request regarding the coding page, ask [here](https://padlet.com/miranege/F2022). I'll leave my answer there, if necessary :-)
 
 <Table of contents>
 
