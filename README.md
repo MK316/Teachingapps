@@ -1,5 +1,6 @@
-# 🙏 Success Requires Passion!
-- **Teaching application: e.g., Teachers' Exam Prep**
+# 🐰 Make 2023 your year! 
+🙏 Success Requires Passion! (Dec.30, 2022)
+- **This page is for my beloved students: e.g., Teachers' Exam Prep**
 
 <Table of contents>
 
