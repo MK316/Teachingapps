@@ -1,4 +1,4 @@
-# 🐰 Make 2023 your year! 
+# 🐰 Make 2023 your year! Wish you a good luck.
 🙏 Success Requires Passion! (Dec.30, 2022)
 - **This page is for my beloved students: e.g., Teachers' Exam Prep**
 
