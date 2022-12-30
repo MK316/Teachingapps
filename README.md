@@ -1,4 +1,4 @@
-# Teaching application
+# Teaching application: e.g., Teachers' Exam Prep
 
 <Table of contents>
 
