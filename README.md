@@ -1,4 +1,5 @@
-# Teaching application: e.g., Teachers' Exam Prep
+# 🙏 Success Requires Passion!
+- **Teaching application: e.g., Teachers' Exam Prep**
 
 <Table of contents>
 
